@@ -1,1 +1,0 @@
-# JJ-P1114-STUDIO-INC.
